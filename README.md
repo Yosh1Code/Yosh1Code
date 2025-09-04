@@ -6,5 +6,5 @@
 - 🤔 I’m looking for help with trying to get into the CyberSecurity sector
 - 💬 Ask me about Soccer
 - 📫 How to reach me: garciajo@lawrence.edu
-- ⚡ Fun fact: I like to Stream and make new friends
+- ⚡ Fun fact: Batman is my Favorite Superhero
 
